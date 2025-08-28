@@ -1,2 +1,0 @@
-# aulaoues2025
-VESTIBULAR UEA 2025
